@@ -3,10 +3,10 @@
 Lilo és Stitch - A csillagkutya 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕 𝟸𝟶𝟸𝟻 𝙾𝚗𝚕𝚒𝚗𝚎 𝚅𝚒𝚍𝚎𝚊 - 𝙸𝚗𝚍𝚊𝚟𝚒𝚍𝚎𝚘 ☑ Lilo és Stitch - A csillagkutya (𝟸𝟶𝟸𝟻) 𝙵𝚒𝚕𝚖𝚎𝚔 𝙾𝚗𝚕𝚒𝚗𝚎 𝟺𝙺 - 𝚄𝚕𝚝𝚛𝚊 𝙷𝙳 | Lilo és Stitch - A csillagkutya « 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕 𝙾𝚗𝚕𝚒𝚗𝚎 𝟸𝟶𝟸𝟻 /𝙵𝚒𝚕𝚖𝚎𝚔 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕 – 𝙾𝚗𝚕𝚒𝚗𝚎 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕 // 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕𝚖 𝙸𝚗𝚐𝚢𝚎𝚗
 
 
-### :: 𝙽é𝚣𝚍 𝚖𝚎𝚐 𝙼𝚘𝚜𝚝 => [Lilo és Stitch - A csillagkutya 𝚝𝚎𝚕𝚓𝚎𝚜 𝚏𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕](https://t.co/xapjsypPsc)
+### :: 𝙽é𝚣𝚍 𝚖𝚎𝚐 𝙼𝚘𝚜𝚝 => [Lilo és Stitch - A csillagkutya 𝚝𝚎𝚕𝚓𝚎𝚜 𝚏𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕](https://t.co/fnW2tYcsLU)
 
 
-### :: 𝙽é𝚣𝚍 𝚖𝚎𝚐 𝙼𝚘𝚜𝚝 => [Lilo és Stitch - A csillagkutya 𝚝𝚎𝚕𝚓𝚎𝚜 𝚏𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕](https://t.co/xapjsypPsc)
+### :: 𝙽é𝚣𝚍 𝚖𝚎𝚐 𝙼𝚘𝚜𝚝 => [Lilo és Stitch - A csillagkutya 𝚝𝚎𝚕𝚓𝚎𝚜 𝚏𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕](https://t.co/fnW2tYcsLU)
 
 
 𝙾𝚗𝚕𝚒𝚗𝚎 𝙵𝚒𝚕𝚖𝚎𝚔 | Lilo és Stitch - A csillagkutya (𝟸𝟶𝟸𝟻) 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕 𝚟𝚒𝚍𝚎𝚊, Lilo és Stitch - A csillagkutya 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕𝚖 𝙾𝚗𝚕𝚒𝚗𝚎 𝙸𝚗𝚍𝚊𝚟𝚒𝚍𝚎𝚘, Lilo és Stitch - A csillagkutya 𝟸𝟶𝟸𝟻 𝚖𝚊𝚐𝚢𝚊𝚛 𝚎𝚕𝚘𝚣𝚎𝚝𝚎𝚜, Lilo és Stitch - A csillagkutya 𝟸𝟶𝟸𝟻 𝚖𝚊𝚐𝚢𝚊𝚛 𝚙𝚛𝚎𝚖𝚒𝚎𝚛, Lilo és Stitch - A csillagkutya 𝟸𝟶𝟸𝟻 𝚘𝚗𝚕𝚒𝚗𝚎 𝚖𝚊𝚐𝚢𝚊𝚛, Lilo és Stitch - A csillagkutya 𝟸𝟶𝟸𝟻 𝚘𝚗𝚕𝚒𝚗𝚎 𝚏𝚒𝚕𝚖, 𝚘𝚗𝚕𝚒𝚗𝚎 𝚏𝚒𝚕𝚖𝚗é𝚣é𝚜, é𝚜 𝚜𝚘𝚛𝚘𝚣𝚊𝚝 𝚊𝚍𝚊𝚝𝚕𝚊𝚙𝚘𝚔, 𝚜𝚣í𝚗é𝚜𝚣 𝚊𝚍𝚊𝚝𝚋á𝚣𝚒𝚜 𝚖𝚊𝚐𝚢𝚊𝚛𝚞𝚕 𝚛𝚎𝚐𝚒𝚜𝚣𝚝𝚛á𝚌𝚒ó 𝚗é𝚕𝚔ü𝚕.
